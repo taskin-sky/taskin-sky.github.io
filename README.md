@@ -1,2 +1,2 @@
 # taskin-sky.github.io
-This website for web design for everyone. 
+hey friends look i have a website, yeo!
